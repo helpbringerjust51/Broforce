@@ -215,4 +215,4 @@ Broforce is available as a full free version, with all features and updates incl
 Get ready to dive into the explosive action of Broforce! Download now and join the fight against terrorism in the most entertaining way possible!
 
 ---
-**Last updated:** 2026-11-05 19:31:59 UTC
+**Last updated:** 2026-11-06 00:45:32 UTC
